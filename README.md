@@ -1,2 +1,0 @@
-# hazzard
-Winter is coming
